@@ -1,1 +1,0 @@
-Cybercup 4.0
